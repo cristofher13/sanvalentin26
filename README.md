@@ -1,1 +1,0 @@
-la imagen "mochi.jpg" cambiar por la foto que ustedes desen lo puede cambiar por "xd".jpg , "amor.jpg" siempre y cuando la imagen tambine se llame asi.y el texto cambiar por el que deseen.Cualquier duda me escriben manitos (953730009)
